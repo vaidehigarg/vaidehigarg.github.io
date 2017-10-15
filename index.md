@@ -1,9 +1,8 @@
-# Arrive at seven the place feels good #
-## No time to call you today ##
-### Encores till seven then Chinese food ###
-#### Back to the hotel again ####
-
-##### I call your number the line ain't free ####
-###### I like to tell you come to me ######
-A night without you seems like a lost dream
-Love I can't tell you how I feel 
+# Hi #
+## This is me, trying to learn something new. ##
+### Because I don't really have any content to share just yet, here is a list of my favorite songs: ###
+* Always Somewhere (Scorpions)
+* So It Goes (The Verve)
+* Open Arms (Journey)
+* Firestarter (The Prodigy)
+* The Deeper The Love (Whitesnake)
